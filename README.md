@@ -1,1 +1,0 @@
-# resume-mohapatra-J
